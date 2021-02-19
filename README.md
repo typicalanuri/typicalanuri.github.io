@@ -1,0 +1,1 @@
+# typicalanuri.github.io
